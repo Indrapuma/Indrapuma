@@ -61,7 +61,7 @@ Politeknik Elektronika Negeri Surabaya, Graduated [2024]
 
 ## 🏆 Certifications
 
-- **Huawei Certified ICT Associate** – HUAWEI
+- **Huawei Certified ICT Associate - Artificial Intelligence** – HUAWEI
 
 --- 
 
