@@ -67,7 +67,7 @@ Politeknik Elektronika Negeri Surabaya, Graduated [2024]
 
 ## 🌐 Find Me Online
 
-- LinkedIn: [https://linkedin.com/in/yourusername](https://linkedin.com/in/indra-putra-mahayuda-65bb2a1b5)
-- Instagram: [https://medium.com/@yourusername](https://instagram.com/indrapuma._)
+- LinkedIn: [https://linkedin.com/in/indra-putra-mahayuda](https://linkedin.com/in/indra-putra-mahayuda-65bb2a1b5)
+- Instagram: [https://instagram.com/@indrapuma._](https://instagram.com/indrapuma._)
 
 ---
